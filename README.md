@@ -1,0 +1,1 @@
+# Tesseract-OCR5.0bianyiwenjianxiazai
